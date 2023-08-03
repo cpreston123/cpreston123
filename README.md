@@ -1,4 +1,4 @@
-### 🔗 [LinkedIn](https://www.linkedin.com/in/charles-preston-3a0458216/)
+### 🔗 [LinkedIn](https://www.linkedin.com/in/chasepreston/)
 
 <!---
 cpreston123/cpreston123 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
